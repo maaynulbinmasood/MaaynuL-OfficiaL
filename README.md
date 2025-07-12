@@ -1,2 +1,2 @@
 # MaaynuL-OfficiaL
-আমি এক আল্লার গোলাম
+The servant of one God, Muhammad (peace be upon him), is my leader.
